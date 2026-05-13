@@ -1,4 +1,4 @@
-#  
+#  custom steal a brainrot Scripts is the best steal a brainrot Script, featuring no clip and undetectable. Safe and powerful for all your needs.
 
 
 
